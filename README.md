@@ -1,2 +1,2 @@
 # CV-Resume
-![telegram-cloud-photo-size-2-5291937018130665233-y](https://github.com/user-attachments/assets/17c2b562-4ff2-4dfa-bbc3-17a81d47acc1)
+![telegram-cloud-photo-size-2-5291937018130665241-y](https://github.com/user-attachments/assets/81e6b0a4-8756-4455-abd7-fd8b638b8a97)
